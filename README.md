@@ -1,1 +1,1 @@
-![image](https://github.com/duraznodev/channel-chat/assets/100629687/b76a5e76-9131-46c9-9706-dce7c00b3730)
+![image](https://github.com/duraznodev/channel-chat/assets/100629687/a1d5a78e-1022-45f1-81ac-46d4d1d6fc80)
